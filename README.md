@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @WiMares
-- 👀 I’m interested in ... Video Games, Developing, coding, music, robots, and of course money.
+- 👀 I’m interested in ... Video Games, Developing, coding, comics and TTRPGS.
 - 🌱 I’m currently learning ... HTML, CSS, JavaScript, Python and hopefully even more.
 - 💞️ I’m looking to collaborate on ... Anything!
 - 📫 How to reach me ... contactwilliammares@gmail.com or on Discord: midlifecrisis
